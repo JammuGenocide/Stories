@@ -1,7 +1,7 @@
 # Stories
 Stories of Jammu genocide victims that were passed down to generations.
 
-1. Aamir Khatana 
+1. Aamir Khatana from Jammu:
 
         "My name is Amir and i belong to one of the survival family of JAMMU GENOCIDE 1947. Many of elder 
         members of our family were martyred by the locals with the  help of state and RSS goons. My grandfather
